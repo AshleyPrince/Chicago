@@ -3,7 +3,9 @@ _Lodin_ is leider tod, gibt nur noch coole Ventrues.
 
 ---
 
-MALKAV IST DER BESTE!!!! xoxo
-Nein mann nosferatu ist der beste
+- Merlin sollte Adrians oder Edgars Ancilla werden!
+
+- MALKAV IST DER BESTE!!!! xoxo
+  Nein mann nosferatu ist der beste
 
 ---
